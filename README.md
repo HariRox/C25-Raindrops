@@ -1,0 +1,1 @@
+The raindrops fall in sync with each other to make a pattern on the screen.
